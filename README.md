@@ -1,3 +1,10 @@
-All repos are mainly posted for discord ab.
+All repos are posted as dumps from past projects
 
--Alt Acc.
+Alt Acc.
+
+
+Currently looking for a efficient python programmer
+
+Contact me at
+-Peo.c.l.org@gmail.com 
+
